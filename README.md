@@ -1,0 +1,1 @@
+# patika günümüz google ödevi
